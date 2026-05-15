@@ -918,3 +918,56 @@ To everyone who has opened a PR, filed an issue, started a Discussion, or simply
 Made with ❤️ by the community, for the community
 
 </div>
+
+
+## about eaco 
+
+about e(eaco)202601:
+
+https://linktr.ee/eacocc
+
+https://x.com/eacocc
+
+english tg:https://t.me/e_eacocc
+
+华语社区：https://t.me/aieaco
+
+e(eaco) arabic阿拉伯 group:https://t.me/earhcoingroup
+
+e(eaco) spanish group:https://t.me/eacoespanish
+
+e(eaco) french group:https://t.me/efrencheaco
+
+e(eaco) russian group:https://t.me/erussianeaco
+
+e(eaco) japan+korea+Southeast group:https://t.me/ejapaneaco
+
+
+The only $eaco in the universe and the earth,
+
+EACO ($eaco) is an innovative small currency, the only $eaco in the universe and the earth,
+
+CA:
+
+DqfoyZH96RnvZusSp3Cdncjpyp3C74ZmJzGhjmHnDHRH
+
+As the MEME coin of villagers around the Earth, EACO aims to promote environmental protection and sustainable development, integrate decentralized finance and digital assets, and become the representative of future personal core assets.
+
+
+EACO(Earth's Best Coin)
+
+
+https://www.orca.so/pools?tokens=DqfoyZH96RnvZusSp3Cdncjpyp3C74ZmJzGhjmHnDHRH
+
+
+https://raydium.io/swap/?inputMint=sol&outputMint=DqfoyZH96RnvZusSp3Cdncjpyp3C74ZmJzGhjmHnDHRH
+
+
+https://app.meteora.ag/dlmm/6ZfCi3qzhgDN1ygHVYXvfsfrwz8ZhQ7hD5mJtjeuUDyE
+
+
+https://www.orca.so/pools/4ELFtiSCM1Ra8yhVFJemnMZPQC2a8yZ3RhSKmckt5Swx
+
+
+(eaco+usdt community).
+
